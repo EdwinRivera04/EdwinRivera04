@@ -61,6 +61,5 @@ When I’m not coding, you’ll probably find me exploring new workout routines,
 ## 🌐 Connect With Me
 - GitHub: [@EdwinRivera04](https://github.com/EdwinRivera04)  
 - LinkedIn: [Edwin Rivera](https://www.linkedin.com/in/edwin-rivera1/)
-- Email: [Your email here]  
 
 ---
